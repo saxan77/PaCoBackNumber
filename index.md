@@ -159,6 +159,8 @@
 <dd><a href="https://twitter.com/tansuikabutu03/status/1162662591425941504" target="_blank">
 ぱこぱこコミック9月号 清楚で憧れの先輩が夏休み合宿でビッチになってハメ撮りとセットで帰ってきた話。
 </a></dd>
+<dt>2019/7/1*(*)</dt>
+<dd>(2019年8月号はツイ消しにより不明。「お祭り」から始まる模様)<a href="https://twitter.com/tansuikabutu03/status/1593575983096815622">(*)</a></dd>
 <dt>2019/6/14(金)</dt>
 <dd><a href="https://twitter.com/tansuikabutu03/status/1139421239229861888" target="_blank">
 ぱこぱこコミック7月号　「水着返して！ココに隠したよね？」　～溶けるビキニの童顔3人組の難癖！～
