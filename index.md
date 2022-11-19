@@ -105,7 +105,7 @@
 </a></dd>
 <dt>2020/9/15(火)</dt>
 <dd><a href="https://twitter.com/tansuikabutu03/status/1305718189846749184" target="_blank">
-ぱこぱこコミック10月号　煙草は値上がりしても××は従来価格！　「友達売って複数煙キメ後尾最高～ぉ゛
+ぱこぱこコミック10月号　煙草は値上がりしても××は従来価格！　「友達売って複数煙キメ交尾最高～ぉ゛
 </a></dd>
 <dt>2020/8/15(土)</dt>
 <dd><a href="https://twitter.com/tansuikabutu03/status/1294568028206555136" target="_blank">
