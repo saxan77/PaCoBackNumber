@@ -1,4 +1,8 @@
 <dl>
+<dt>2022/12/15(木)</dt>
+<dd><a href="https://twitter.com/tansuikabutu03/status/1603162924125757441" target="_blank">
+ぱこぱこコミック1月号 福男ならぬ福夫妻選び！沢山のカップルが一斉にハメまくり♡ 福も子も授かれ！
+</a></dd>
 <dt>2022/11/15(火)</dt>
 <dd><a href="https://twitter.com/tansuikabutu03/status/1592261090850746368" target="_blank">
 ぱこぱこコミック12月号 ふたなりには肉棒奴隷再雇用しかなく「シャドウパンパンやめて画像を大っぴらに
