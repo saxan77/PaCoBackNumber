@@ -1,4 +1,8 @@
 <dl>
+<dt>2023/1/16(月)</dt>
+<dd><a href="https://twitter.com/tansuikabutu03/status/1614826894675046400" target="_blank">
+ぱこぱこコミック2月号 大好きな先輩にチョコを贈るはずがチャラ男とギャルにチョコも身体も貪られて……
+</a></dd>
 <dt>2022/12/15(木)</dt>
 <dd><a href="https://twitter.com/tansuikabutu03/status/1603162924125757441" target="_blank">
 ぱこぱこコミック1月号 福男ならぬ福夫妻選び！沢山のカップルが一斉にハメまくり♡ 福も子も授かれ！
@@ -67,7 +71,7 @@
 <dd><a href="https://twitter.com/tansuikabutu03/status/1426604756013780995" target="_blank">
 ぱこぱこコミック9月号　TS病が大流行！そのおっぱいで親友は無理でしょ。「お、俺たち親友だよな！？
 </a></dd>
-<dt>2021/7/15(日)</dt>
+<dt>2021/7/15(木)</dt>
 <dd><a href="https://twitter.com/tansuikabutu03/status/1415339621974614017" target="_blank">
 ぱこぱこコミック8月号　緊急非常催眠宣言「発情液と脱衣のご協力お願いします！セクシャルディスタンス！
 </a></dd>
