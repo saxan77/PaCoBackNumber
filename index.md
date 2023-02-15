@@ -1,4 +1,8 @@
 <dl>
+<dt>2023/2/15(水)</dt>
+<dd><a href="https://twitter.com/tansuikabutu03/status/1625823936637440002" target="_blank">
+ぱこぱこコミック3月号 花より団子！ しかし彼女は上の口だけでは満足せず……「食べたらシよっか♡
+</a></dd>
 <dt>2023/1/16(月)</dt>
 <dd><a href="https://twitter.com/tansuikabutu03/status/1614826894675046400" target="_blank">
 ぱこぱこコミック2月号 大好きな先輩にチョコを贈るはずがチャラ男とギャルにチョコも身体も貪られて……
