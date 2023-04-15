@@ -1,4 +1,8 @@
 <dl>
+<dt>2023/4/15(土)</dt>
+<dd><a href="https://twitter.com/tansuikabutu03/status/1647113567286726656" target="_blank">
+ぱこぱこコミック5月号 巨根学生支援課がヤリサー共に鉄槌！「男子学生（おすあな）の分際でハメるな！」
+</a></dd>
 <dt>2023/3/15(水)</dt>
 <dd><a href="https://twitter.com/tansuikabutu03/status/1635838233790521345" target="_blank">
 ぱこぱこコミック4月号 桜満開！花粉満載……ある日から人類は花粉で強制絶頂「濡れちゃった♡（ズルズル
