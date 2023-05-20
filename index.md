@@ -1,6 +1,6 @@
 <dl>
 <dt>2023/5/14(日)</dt>
-<dd><a href="https://twitter.com/tansuikabutu03/status/1647113567286726656" target="_blank">
+<dd><a href="https://twitter.com/tansuikabutu03/status/1657595885243764737" target="_blank">
 ぱこぱこコミック6月号 好きな性と歳になれる時代！「挿入れられてる時にオスガキになるのやべぇイク゛っ
 </a></dd>
 <dt>2023/4/15(土)</dt>
