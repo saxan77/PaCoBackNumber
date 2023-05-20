@@ -1,4 +1,8 @@
 <dl>
+<dt>2023/5/14(日)</dt>
+<dd><a href="https://twitter.com/tansuikabutu03/status/1647113567286726656" target="_blank">
+ぱこぱこコミック6月号 好きな性と歳になれる時代！「挿入れられてる時にオスガキになるのやべぇイク゛っ
+</a></dd>
 <dt>2023/4/15(土)</dt>
 <dd><a href="https://twitter.com/tansuikabutu03/status/1647113567286726656" target="_blank">
 ぱこぱこコミック5月号 巨根学生支援課がヤリサー共に鉄槌！「男子学生（おすあな）の分際でハメるな！」
