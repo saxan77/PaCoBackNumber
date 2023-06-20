@@ -1,4 +1,8 @@
 <dl>
+<dt>2023/6/15(木)</dt>
+<dd><a href="https://twitter.com/tansuikabutu03/status/1669177918352773120" target="_blank">
+ぱこぱこコミック7月号 放課後お嬢様達の秘密「お゛っ゛クソデカ爵位上級生共にチ○ポ下克上最高ですわ♡
+</a></dd>
 <dt>2023/5/14(日)</dt>
 <dd><a href="https://twitter.com/tansuikabutu03/status/1657595885243764737" target="_blank">
 ぱこぱこコミック6月号 好きな性と歳になれる時代！「挿入れられてる時にオスガキになるのやべぇイク゛っ
