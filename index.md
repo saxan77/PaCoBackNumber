@@ -1,4 +1,8 @@
 <dl>
+<dt>2023/7/15(土)</dt>
+<dd><a href="https://twitter.com/tansuikabutu03/status/1680049555801534471" target="_blank">
+ぱこぱこコミック8月号 夏だ！飲みだ！卓上拘束ガキサーバーで飲み放題だ！「泣いてて可愛い〜♡はよ出せ
+</a></dd>
 <dt>2023/6/15(木)</dt>
 <dd><a href="https://twitter.com/tansuikabutu03/status/1669177918352773120" target="_blank">
 ぱこぱこコミック7月号 放課後お嬢様達の秘密「お゛っ゛クソデカ爵位上級生共にチ○ポ下克上最高ですわ♡
