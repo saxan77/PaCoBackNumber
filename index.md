@@ -1,4 +1,8 @@
 <dl>
+<dt>2023/8/15(火)</dt>
+<dd><a href="https://twitter.com/tansuikabutu03/status/1691192973835309056" target="_blank">
+ぱこぱこコミック9月号 部活合宿に信じて送り出した彼女が……「ただいま～OB共短小だから帰っちゃった
+</a></dd>
 <dt>2023/7/15(土)</dt>
 <dd><a href="https://twitter.com/tansuikabutu03/status/1680049555801534471" target="_blank">
 ぱこぱこコミック8月号 夏だ！飲みだ！卓上拘束ガキサーバーで飲み放題だ！「泣いてて可愛い〜♡はよ出せ
