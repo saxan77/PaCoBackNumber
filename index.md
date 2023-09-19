@@ -1,4 +1,8 @@
 <dl>
+<dt>2023/9/15(金)</dt>
+<dd><a href="https://twitter.com/tansuikabutu03/status/1702508641776177580" target="_blank">
+ぱこぱこコミック10月号 月でっか、胸も背も態度もでっか！「はぁ？催眠？ それよりもさっさと脱ぎなさ
+</a></dd>
 <dt>2023/8/15(火)</dt>
 <dd><a href="https://twitter.com/tansuikabutu03/status/1691192973835309056" target="_blank">
 ぱこぱこコミック9月号 部活合宿に信じて送り出した彼女が……「ただいま～OB共短小だから帰っちゃった
