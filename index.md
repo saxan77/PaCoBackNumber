@@ -1,4 +1,8 @@
 <dl>
+<dt>2023/10/15(日)</dt>
+<dd><a href="https://twitter.com/tansuikabutu03/status/1702508641776177580" target="_blank">
+ぱこぱこコミック11月号　ボジョレー濡れ棒解禁！「エグい形と豊かな柔らかさを備えた傑出したドスケベ」
+</a></dd>
 <dt>2023/9/15(金)</dt>
 <dd><a href="https://twitter.com/tansuikabutu03/status/1702508641776177580" target="_blank">
 ぱこぱこコミック10月号 月でっか、胸も背も態度もでっか！「はぁ？催眠？ それよりもさっさと脱ぎなさ
