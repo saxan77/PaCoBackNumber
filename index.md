@@ -1,4 +1,8 @@
 <dl>
+<dt>2023/11/15(木)</dt>
+<dd><a href="https://twitter.com/tansuikabutu03/status/1702508641776177580" target="_blank">
+ぱこぱこコミック12月号　年越しヤンキー巫女さんカウントダウン「おら煩悩全部出せ！きったね♡ぢゅるる
+</a></dd>
 <dt>2023/10/15(日)</dt>
 <dd><a href="https://twitter.com/tansuikabutu03/status/1702508641776177580" target="_blank">
 ぱこぱこコミック11月号　ボジョレー濡れ棒解禁！「エグい形と豊かな柔らかさを備えた傑出したドスケベ」
