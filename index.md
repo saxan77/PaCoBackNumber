@@ -1,4 +1,8 @@
 <dl>
+<dt>2023/12/15(金)</dt>
+<dd><a href="https://twitter.com/tansuikabutu03/status/1735494904623648880" target="_blank">
+ぱこぱこコミック1月号　雪やこんこ生ハメパンパン「寒い〜ちょっとこたつとち〇ぽ借りるね、んっ温か〜♡
+</a></dd>
 <dt>2023/11/15(木)</dt>
 <dd><a href="https://twitter.com/tansuikabutu03/status/1702508641776177580" target="_blank">
 ぱこぱこコミック12月号　年越しヤンキー巫女さんカウントダウン「おら煩悩全部出せ！きったね♡ぢゅるる
